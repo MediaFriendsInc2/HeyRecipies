@@ -10,7 +10,6 @@
 * 1 Tbsp Chinkiang vinegar
 * 3 Tbsp chili oil with chili flakes
 * 1 tsp granulated, white sugar
-* 1/2 tsp MSG (optional)
 * 3 Tbsp chili oil (no chili flakes)
 * 1 tsp minced ginger
 * 1 tsp minced garlic
@@ -20,7 +19,6 @@
 * 1/3 lb ground beef, 85/15
 * 2 tsp light soy sauce
 * 1 tsp Shaoxing rice wine
-* 1/4 tsp MSG (optional)
 * salt to taste
 * 1 lb fresh Chinese noodles or 12 oz dried noodles
 * 1/4 bunch spinach, rinsed
