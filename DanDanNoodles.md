@@ -20,7 +20,7 @@
 * 1/3 lb ground beef, 85/15
 * 2 tsp light soy sauce
 * 1 tsp Shaoxing rice wine
-* 1/4 tsp MSG (optional)
+* 1/4 tsp MSG
 * salt to taste
 * 1 lb fresh Chinese noodles or 12 oz dried noodles
 * 1/4 bunch spinach, rinsed
