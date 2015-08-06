@@ -2,7 +2,7 @@
 
 ### Ingredients
 * 1 tsp ground, roasted Sichuan peppercorn
-* 1/4 tsp salt
+* 1 tsp salt
 * 3 tsp sesame paste
 * 2 tsp creamy peanut butter
 * 1 Tbsp light soy sauce
