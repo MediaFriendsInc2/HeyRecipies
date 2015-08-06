@@ -11,7 +11,7 @@
 * 3 Tbsp chili oil with chili flakes
 * 1 tsp granulated, white sugar
 * 1/2 tsp MSG (optional)
-* 2 Tbsp chili oil (no chili flakes)
+* 3 Tbsp chili oil (no chili flakes)
 * 1 tsp minced ginger
 * 1 tsp minced garlic
 * 3-5 dried, whole Sichuan chili, snipped in half, seeds removed
